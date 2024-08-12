@@ -1,3 +1,0 @@
-![Imagem Press Release](https://i.ibb.co/Q6v4BzW/Press-Release.png)
-
-Texto da nota...
