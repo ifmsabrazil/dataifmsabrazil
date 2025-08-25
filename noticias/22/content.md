@@ -1,0 +1,19 @@
+Apesar de estar fora dos holofotes, a reforma tributária do consumo ainda não foi concluída. E nesse contexto, especialistas sociedades médicas, grupos de pesquisa e organizações da sociedade civil lançaram em 19/08 o “Manifesto em defesa da saúde na Reforma Tributária”, que pede que a alíquota do imposto seletivo sobre tabaco, álcool, bebidas açucaradas e bets seja alta o suficiente para reduzir seu consumo e as doenças e mortes associadas a esses produtos. O texto completo e lista de signatários está disponível em https://actbr.org.br/manifesto-reforma-tributaria-saudavel-2025/
+
+O documento é assinado por mais de 30 especialistas no campo da saúde e alimentação saudável, como Drauzio Varella, Margareth Dalcomo, Rita Lobo, Bela Gil, Daniel Becker, e ex-ministros como José Gomes Temporão, Arthur Chioro, José Graziano da Silva, entre outros. Organizado pela ACT Promoção da Saúde, o manifesto conta também com a assinatura de mais de 100 entidades e grupos de pesquisa como a IFMSA Brazil, Sociedade Brasileira de Pediatria, Sociedade Brasileira de Diabetes, Movimento Todos Juntos Contra o Câncer, a Associação Brasileira de Estudos do Álcool e outras Drogas (ABEAD), Abeso, Greenpeace Brasil, Instituto de Defesa de Consumidores (Idec), Instituto Alana, entre outras.
+
+**Contexto**
+O imposto seletivo criado pela Emenda Constitucional 132/2023, regulamentado em 2024 para incidir sobre bebidas alcoólicas, bebidas açucaradas, tabaco e apostas. Em 2025, a definição das alíquotas se torna etapa decisiva, pois delas depende o real impacto da medida. A tributação de produtos nocivos é apontada pela OMS como uma das políticas mais efetivas para reduzir doenças crônicas não transmissíveis, responsáveis por 75% das mortes no Brasil, além de aliviar custos que ultrapassam R$ 175 bilhões ao ano para o país. Estudos mostram que um aumento de 50% nos impostos sobre tabaco, álcool e refrigerantes poderia gerar bilhões de dólares em recursos, beneficiando a saúde pública e reduzindo desigualdades.
+
+**Impactos na saúde e prejuízos para o Brasil **
+
+O manifesto chama a atenção para a definição das alíquotas do imposto seletivo, que vai incidir sobre produtos nocivos à saúde e ao meio ambiente, como tabaco, álcool, bebidas açucaradas e bets. O governo prepara uma proposta de projeto de lei com a definição das alíquotas, que deve ser enviado nas próximas semanas ao Congresso Nacional. 
+
+O texto do manifesto relembra que a tributação mais alta de produtos nocivos é uma política adotada por dezenas de países, defendida pela Organização Mundial de Saúde (OMS), e que pode prevenir doenças, salvar vidas e economizar recursos públicos para o SUS. Estudos mostram que, apenas no Brasil, o consumo de tabaco, álcool e refrigerantes provocam prejuízos de pelo menos R$175 bilhões de reais por ano. 
+
+Além de trazer dados sobre o impacto negativo do tabaco, álcool e refrigerantes na saúde da população e no meio ambiente, o texto denuncia a pressão das indústrias de produtos nocivos, que buscam influenciar governo e Congresso para que a alíquota do imposto seletivo seja a mais baixa possível. 
+
+
+“É por isso que alertamos a sociedade e recomendamos ao Governo e ao Congresso Nacional para que considerem as melhores evidências científicas disponíveis, sem conflito de interesse, e façam cumprir a função constitucional do imposto seletivo de salvar vidas. A saúde da população deve ser protegida a despeito da pressão exercida por indústrias que lucram com o adoecimento do povo brasileiro, e buscam se esquivar da justa tributação”, conclui o manifesto. 
+
+Acesse o manifesto completo aqui: https://manifestoreformasaudavel.actbr.org.br/
